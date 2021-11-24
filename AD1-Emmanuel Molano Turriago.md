@@ -48,7 +48,7 @@ que el domicilio llegue más rápido si estás ubicado en el centro y occidente 
 \
 \
 \
-**5.  [El volc\'e1n al desnudo: c\'f3mo interpretar las se\'f1ales de la erupción de La Palma](https://elpais.com/ciencia/2021-11-06/el-volcan-al-desnudo-como-interpretar-las-senales-de-la-erupcion-de-la-palma.html?utm_source=pocket_mylist")**\
+**5.  [El volcán al desnudo: cómo interpretar las señales de la erupción de La Palma](https://elpais.com/ciencia/2021-11-06/el-volcan-al-desnudo-como-interpretar-las-senales-de-la-erupcion-de-la-palma.html?utm_source=pocket_mylist")**\
 \
 El diario El País realizó una radiografía que permitió descubrir cómo fue el proceso previo al proceso de erupción del Volcán Cumbre Vieja en la isla de La Palma.  
 Con una excelente combinación entre texto, infografías y datos explica de la mejor manera cómo fue el proceso de la erupción  
